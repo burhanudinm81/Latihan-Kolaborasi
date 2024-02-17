@@ -10,3 +10,4 @@
 8. Aulia Ardhi
 9. Nur Ikhsan
 10. Ananda Dhea
+11. Risco Herlambang

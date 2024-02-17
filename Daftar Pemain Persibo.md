@@ -7,4 +7,6 @@
 5. Roni Rosadi
 6. I Made Tri Somananta
 7. Yudha Firdana
-8. Nur Ikhsan
+8. Aulia Ardhi
+9. Nur Ikhsan
+

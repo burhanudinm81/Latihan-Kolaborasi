@@ -5,3 +5,5 @@
 3. Tarik El Janaby
 4. Munhar
 5. Roni Rosadi
+6. I Made Tri Somananta
+7. Yudha Firdana

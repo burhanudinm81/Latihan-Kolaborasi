@@ -8,3 +8,5 @@
 6. I Made Tri Somananta
 7. Yudha Firdana
 8. Aulia Ardhi
+9. Nur Ikhsan
+
